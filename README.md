@@ -1,2 +1,2 @@
 # Curriculo
-Currículo Wanderson R. Dutra
+ Currículo Wanderson R. Dutra
